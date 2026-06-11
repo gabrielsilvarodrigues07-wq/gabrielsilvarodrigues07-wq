@@ -6,6 +6,6 @@
 - 🖥️ gosto de configurar apps e configurações dentro do pc ...
 - 🕶️ gosto de ouvir musica nos dia a dia ...
 
-- 
+  
 ![](https://media1.tenor.com/m/Lnt2uEm1vrUAAAAd/67-67-kid.gif)
 ![](https://media1.tenor.com/m/U12mIej3COMAAAAd/lf-ssjb-goku-grn-ssjb-goku.gif)
