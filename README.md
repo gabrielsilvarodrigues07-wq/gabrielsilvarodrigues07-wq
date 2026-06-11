@@ -1,6 +1,6 @@
 ## Hey, I'm Ninex 👋
 
-<!--
+
 
 - 🥇  gosto de futebol ...
 - 🥷 I’m ex palyer série A na autonomo FF ...
